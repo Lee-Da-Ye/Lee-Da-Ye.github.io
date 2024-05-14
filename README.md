@@ -1,3 +1,3 @@
-# 이다예 Portfolio
+# 이다예의 Portfolio
 
 
